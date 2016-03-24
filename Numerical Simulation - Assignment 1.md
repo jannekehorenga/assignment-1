@@ -69,7 +69,8 @@ Bachelorthesis: The East African Community: too good to be true?
 09/2012 – 08/2013  
 **Feestcommissie, penningmeester, 5 uur/week** bij *Volleybalvereniging Van Slag, Utrecht*
 
-04/2012 – 09/2012  **Introductiecommissie, penningmeester/voorzitter, 5 uur/week** bij *Volleybalvereniging Van Slag, Utrecht*
+04/2012 – 09/2012  
+**Introductiecommissie, penningmeester/voorzitter, 5 uur/week** bij *Volleybalvereniging Van Slag, Utrecht*
 
 10/2011 – 02/2012  
 **Galacommissie, penningmeester, 5 uur/week** bij *Volleybalvereniging Van Slag, Utrecht*
