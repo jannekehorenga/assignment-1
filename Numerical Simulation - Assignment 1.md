@@ -83,7 +83,7 @@ Bachelorthesis: The East African Community: too good to be true?
 
 ####AANVULLENDE INFORMATIE 
  
-Kennis van Microsoft Office Word, Excel en Powerpoint, STATA, HTML en CSS 
+Kennis van Microsoft Office Word, Excel en Powerpoint, STATA, HTML en CSS, Markdown en Python (voor meer informatie zie mijn [repo](https://www.swipe.to/3284f). 	
  
 ####INTERESSES 
  
